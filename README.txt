@@ -1,0 +1,1 @@
+This is for the offical website of Adegle.
