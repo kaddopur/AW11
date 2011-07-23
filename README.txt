@@ -1,1 +1,1 @@
-This is for the offical website of Adegle.
+This is for the official website of Adegle.
